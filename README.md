@@ -7,7 +7,7 @@ ITop Vpn Cracked version with VIP access
 
 **`2)` Unpack the zip.**
 
-**`3)` Click on the `ItopVPN_Crack_Installer.exe` and install the program.**
+**`3)` Click on the `ITopVPN_Crack_Installer.exe` and install the program.**
 ___________________________________________________________________________________________________________
 
 ![image](https://github.com/user-attachments/assets/19f5c539-2044-40b2-9cfa-9c2de45fd695)
