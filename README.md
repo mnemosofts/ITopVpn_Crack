@@ -12,6 +12,4 @@ ________________________________________________________________________________
 
 ![image](https://github.com/user-attachments/assets/19f5c539-2044-40b2-9cfa-9c2de45fd695)
 
-### **The program is intended for informational purposes. We do not promote fraud.**
-
 https://t.me/mnemosofts
